@@ -1,4 +1,4 @@
-# WorldBox MOD APK [Premium Unlocked] 2025 Download Free For Android
+# WorldBox MOD APK 0.22.21 [Premium Unlocked] 2025 Download Free For Android
 
 | ![83444_ab32bf79-bbad-408f-b91b-2716c20fdcac](https://github.com/user-attachments/assets/d2dade3a-11b2-4452-b27c-a065f99000d4) | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/id/worldbox/)  |
 |:-------------------------------------------------:|-----------------------|
